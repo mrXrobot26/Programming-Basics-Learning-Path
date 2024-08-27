@@ -3,9 +3,9 @@
 
 ## Original Post
 For the full details in Arabic, please check the original post:
-- [Facebook](link i will add later)
-- [LinkedIn](link-to-linkedin)
-- [Twitter (X)](link-to-twitter)
+- [Facebook](https://www.facebook.com/share/p/A8wRLtfNjzosAADH/)
+- [LinkedIn](https://www.linkedin.com/feed/update/urn:li:activity:7234183030267944960/)
+- [Twitter (X)](https://x.com/MrXroboT/status/1828404613814366663)
 
 ## Table of Contents
 1. [Introduction](#introduction)
